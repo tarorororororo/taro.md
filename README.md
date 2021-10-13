@@ -4,5 +4,5 @@
 ![](https://cdn.discordapp.com/attachments/869530253687685170/897876569631121488/2.jpg)
 # [taro - rafis gameplay](https://taro.s-ul.eu/m30gztYn)
 ![](https://cdn.discordapp.com/attachments/869530253687685170/897876573766697040/3.jpg)
-# [ootsuha](https://taro.s-ul.eu/4ejGKSQy)
+# [ootsuha](https://taro.s-ul.eu/4ejGKSQy)- USE CURSOR SIZE 2X
 ![](https://cdn.discordapp.com/attachments/869530253687685170/897877826450112553/4.jpg)
