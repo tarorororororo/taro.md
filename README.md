@@ -1,2 +1,2 @@
-# [monkovaxtarotekkito](https://taro.s-ul.eu/RcpAdSgi)
-# [Rafis HDDT mrekk](https://taro.s-ul.eu/NzBdyEN3)
+# [nm](https://taro.s-ul.eu/6OFVZ4zn)
+# [dt](https://taro.s-ul.eu/avokoAPQ)
