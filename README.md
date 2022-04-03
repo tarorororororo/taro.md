@@ -1,2 +1,2 @@
-# [nm](https://taro.s-ul.eu/6OFVZ4zn)
-# [dt](https://taro.s-ul.eu/avokoAPQ)
+# [SHIZURU](https://taro.s-ul.eu/ksk2ZWJa)
+# [SHIZURU - コピー](https://taro.s-ul.eu/pOCLBLE6)
